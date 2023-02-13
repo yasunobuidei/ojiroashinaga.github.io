@@ -1,0 +1,1 @@
+# ojiroashinaga.github.io
